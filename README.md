@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Apurv Anand.
-- 📫 How to reach me :
-- 😎Linkedin page link:
+- 📫 Following are the ways to reach me :
+- 😎Linkedin profile link-
 - www.linkedin.com/in/apurv-anand-634b21227
-- 📠Email id:
+- 📠Email id-
 - apurvanand.2002@gmail.com
 - Thanks😊 for Visiting my github profile,I hope that it helped you.😎 ✨
 
